@@ -6,7 +6,7 @@
 
 ---
 
-🔗 If you want to know more, check my LinkedIn: [lana-milicevic](www.linkedin.com/in/lana-milicevic)
+🔗 If you want to know more, check my LinkedIn: [lana-milicevic](https://www.linkedin.com/in/lana-milicevic)
 
-📫 For any questions, do not hesitate to get in touch at: [lana.milicevic@uniri.hr](lana.milicevic@uniri.hr)
+📫 For any questions, do not hesitate to get in touch at: [lana.milicevic@uniri.hr](mailto:lana.milicevic@uniri.hr)
 
